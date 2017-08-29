@@ -16,4 +16,4 @@
 ![](http://ovfstv47l.bkt.clouddn.com/17-8-29/6992556.jpg?imageMogr2/thumbnail/!60p)  
 
 点击屏幕拍完照后的样子如下⬇️  
-![](http://ovfstv47l.bkt.clouddn.com/17-8-29/6992556.jpg?imageMogr2/thumbnail/!60p)
+![](http://ovfstv47l.bkt.clouddn.com/17-8-29/5604494.jpg?imageMogr2/thumbnail/!60p)
